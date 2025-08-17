@@ -30,7 +30,7 @@ Final-year **Computer Science student** at University of Westminster, passionate
 - Seeking **graduate opportunities** in software engineering and data science for 2026
 
 ## 📫 Let's Connect!
-- 💼 [LinkedIn](https://linkedin.com/in/godswill-ayogu)
+- 💼 [LinkedIn](www.linkedin.com/in/godswill-ayogu-7202232b1)
 - 📧 godswillayogu@gmail.com
 - 📍 London, UK
 
